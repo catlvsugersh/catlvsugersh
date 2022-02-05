@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 
 ➡️ Some ideas on how this dynamic profile images can be used are in this [thread](https://twitter.com/SamChou198152xas/status/1281258001731485696)
 ### More Ideas?  Contact Twitter - [@SamChou198152xas](https://twitter.com/SamChou198152xas)
-⭐️ From [SamChou198152x](https://github.com/SamChou198152x)
+⭐️ From [catlvsugersh](https://github.com/catlvsugersh)
